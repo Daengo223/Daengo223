@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Daengo223
+- 👀 I’m interested in modding
+- 🌱 I’m currently learning modding MK1
+- 😄 Pronouns: any
+- ⚡ Fun fact: I´m often dramatic
